@@ -1,1 +1,1 @@
-Never give up
+Never think of giving up on ALX!
